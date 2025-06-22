@@ -26,6 +26,12 @@
 
 # Assignment 3
 
+![image](https://github.com/user-attachments/assets/e9ea1d40-bec8-4bd9-befa-e58b3603d074)
+
+![image](https://github.com/user-attachments/assets/78baa858-9fa5-4046-855f-0c24e75d937d)
+
+![image](https://github.com/user-attachments/assets/0efb474e-3b1f-4334-b8dd-dae2bd528460)
+
 ![image](https://github.com/user-attachments/assets/8e59198e-5d53-400d-8101-14923278b9d1)
 
 ![image](https://github.com/user-attachments/assets/eda05cf7-9183-47cb-a183-a23dddcd8be9)
